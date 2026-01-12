@@ -1,9 +1,9 @@
 <div align="center">
 
-bonnibel / lute ๑ 17
+i do not have it in me to make this nice rn 
 
-she it و lesbithing
+alt my main is @mirrorgem but also follow @popuIi 
 
-banned from 18+ but i dont want 14yos inting thanks
+my tiktok is bubbiine & my twiter is sfothletsky yaaaay ok!
 
-</div>
+18yo MINOR ;-; -15dniuf & -17 do not make weird comments 2 me 
